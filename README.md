@@ -6,4 +6,4 @@
 
 </pre>                                                          
 
-⚡ Full time software engineer for [MindLink](https://www.mindlinksoft.com)</br>**
+⚡ Full time software engineer for [MindLink](https://www.mindlinksoft.com)</br>
