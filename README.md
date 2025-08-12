@@ -6,6 +6,4 @@
 
 </pre>                                                          
 
-**💪 International underwear model</br>
-💃 Olympic salsa dancer gold medalist</br>
 ⚡ Full time software engineer for [MindLink](https://www.mindlinksoft.com)</br>**
